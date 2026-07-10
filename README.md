@@ -6,8 +6,9 @@ Welcome! This is a public Minecraft group chat where people can:
 - Discuss mods and clients
 - Make friends
 
-## Join Here
-https://chatgpt.com/gg/6a4ae637de90819fa6c03ef045f03c3d
+## 🚀 Join the Chat
+
+[Click here to join the Minecraft ChatGPT Group](https://chatgpt.com/gg/6a4ae637de90819fa6c03ef045f03c3d)
 
 ## Rules
 1. Be respectful.
