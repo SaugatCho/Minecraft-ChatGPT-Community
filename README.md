@@ -19,7 +19,7 @@
 
 ## 🌎 About This Community
 
-Welcome to the Minecraft ChatGPT Group Chat!
+Welcome to the Minecraft Group Chat!
 
 This is a place for Minecraft players to meet, chat, and share their ideas. You can talk about builds, mods, unblocked minecraft, clients, servers, updates, and anything Minecraft-related.
 
